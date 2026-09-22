@@ -23,4 +23,4 @@
 She/Her
 
 ## ⚡ Fun fact
-I love turning complex problems into clean, intuitive interfaces — and I’m always up for learning something new with a good cup of coffee ☕.
+I love turning complex problems into clean, intuitive interfaces and I’m always up for learning something new with a good cup of coffee ☕.
